@@ -5,3 +5,4 @@ Utsumi is a Japanese Buddhist monk, who is a so-called gyoja, meaning a spiritua
 * is committed
 * is very focused
 > As if the entire universe was mine; all was serene and my mind was clear and bright.
+<img src="https://www.kanopy.com/sites/default/files/imagecache/vp_thumbnail_extremly_large/video-assets/1115795_landscape.jpg"/>
